@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with rare kaizen Script, the #1 Script. Includes custom skins and no cooldown for unbeatable performance.
 
 
 
